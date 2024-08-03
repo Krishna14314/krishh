@@ -1,1 +1,1 @@
-I'm get ready for improving myself
+I'm getting ready for improving myself
